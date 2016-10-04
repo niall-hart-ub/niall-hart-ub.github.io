@@ -1,1 +1,0 @@
-# niall-hart-ub.github.io
